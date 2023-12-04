@@ -1,4 +1,19 @@
-ASM8234 98234 2O3I4N OI23O4 NIO2IO 34I OI2N34  234
+norope
+
+adress not foudn 2o34 io2 
+ h2
+34
+ 23
+4n
+ 234i io23n ioo i234 
+
+ha
+ja
+ha
+hjj io2 io34 oi 
+
+
+nopry ASM8234 98234 2O3I4N OI23O4 NIO2IO 34I OI2N34  234
 TH 
 H2 3
 4 
