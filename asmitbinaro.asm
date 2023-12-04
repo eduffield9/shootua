@@ -3,7 +3,7 @@ more ;essop op234pon np23 4no noi234o n no2i34o ni noi234
 
 ha
 h
-ha tio2 3948 8923 u4in2 3io4 nion io noi234
+ha tio2 3948 8923 u4in2 3io4 nion io noi234 ua uio23 io4234
 ha
   more io23io4  ino23 ino4 ion234 io 2noi34 oin2 on3i4 on2 3no4 oin234 
 h
