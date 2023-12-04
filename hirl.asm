@@ -1,4 +1,4 @@
-coin2 34o oi23 nio4 nio23 oin 234 
+get coin2 34o oi23 nio4 nio23 oin 234 
 234
 234
 
