@@ -1,3 +1,148 @@
+yell
+
+bit
+   yell
+
+api door 
+2h3 4
+23 4
+234  the odorh 
+23 4
+2 
+34
+ 23 
+4
+ 234
+ 234  io23n4 o2i 3on4 o23i4nio oinio23 io4234 
+
+the 
+   door nio23 4o o234 o o234 omp mop2 opm234op 
+
+apt oi2n3 4234 doh w weapooni2 34
+ @3 4234 ioio ion 234  
+ha
+ha fall 2oi34 io234 n2io34 oi donw oi2n3 4io23 i4no 2io3 4
+ha
+ha er iun2n3i 4n i2 nio3 ion23  gun er oi234n io io2 io234 
+h 
+ 2
+34 gun 2  er ooi moi23 mo4ioin in o in234 
+3 4
+
+if he is  238489289 348928 93489 238 948 9 u234
+ h23 
+2
+3 
+234 n
+23
+n i i
+23 i4oniooi 234o iio 2oi34 inro 29 83 
+
+234 io ion2n io34n io 
+2 
+
+ 23i 4ogun88888e r98 289348  87y234h u2 3
+4b 2
+3 n234 ni o2 ino34io n ino2io 234  erre 892 8h394n89ui  234
+
+
+card
+h 23
+4234 key 
+ h2
+34
+ 234 kye 
+
+234
+ 234 k,eyh 
+2 3h
+4
+ 234 ioo inn ioino ino in o234 23
+
+
+ 23
+ 42 io io234 
+
+cry 
+   model ha ha ha ha 923 894 23979827893 879 278934 7898293897 u234 
+234234 
+2234  i have k a oini 2o3 4 nioio no 234 
+ 34 
+ 23234  er keyr 
+
+h23
+a234  key uo;i234in  nio2n io ino ino 234 
+hah
+a3
+2
+ 324 2 key oi234o2o  oii o 234 
+
+ 23 er key o2i34 io oin2 ion234 
+ 234 
+a   er key oi234 oi i234 
+h
+ah
+ha you 
+ha
+ha 
+ha
+ha tonyu u2io34 ino23 oin ino2io 34 
+
+cry 
+234
+
+234  and open 23894 892893 89hni234 oi234 oni2in 234  the blin 283 
+2n34 
+ 2 
+
+234  3  cry  
+
+jahh
+a
+hah
+ah23234 23oi n4 o ioio  io oi io2oi 34io io nio23o in4 o 234 
+ah34  chyr io23oi n4 oi2o i3i no ino io234 
+ah2
+
+hah2
+   cyr io2oni 3oim oi 2 ion noi2oi 234 
+
+blosed 89ui 234 
+
+ 234 i234i o hoi2nio 3 nioio2 34 closed 82n934 89i o23 i234
+
+23 
+34  it rope 90234 j9j 90293o mo ioi 234 i234 
+232 
+2334  blind 234 89 98h2n3 8i 234 
+2
+h34 oi2 3iooi2oi n34 nio2 oin3oi nio  234 
+a2
+hah234  it 2 394 j923j9  no9i 234 
+ah2
+ 2 34 rope 89238 4892 8934 89 289349898j i2o3o 4234
+
+child
+ 23 4
+23 4  ha rope o9234 o234 oin23o in4 nio234 
+ 2j34 h
+234    ok ai io2n3o i4no i2 nio34no io n2i3 nio ino234 
+ha h
+
+h 234
+ 234  tony 2io34io n nio2noi noi 2nio nio n io2n io34 nioi n2 
+34 
+2 
+
+ 234  blind 8 283ui23 
+  
+ha
+ha  roep 3 iw o2 349n2 i34nio n2io3 ino inoio n2 34 
+ha  
+hah 
+a  
+
+
 h2 3
 4 2
 34 2i34 oi nio2ino 3432
